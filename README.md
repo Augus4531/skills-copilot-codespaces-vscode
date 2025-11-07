@@ -8,8 +8,6 @@ asdbaga
 zhjsafasdasd
 asdasd
 asd
-asds
-asd
 asdasd
 520
 
